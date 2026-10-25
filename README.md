@@ -26,7 +26,7 @@
                                                               ✦Sleep Token
                                                               ✦Motionless In White
                                                               ✦Bad Omens 
-                                                               ✦Pierce The Veil
+                                                             ✦Pierce The Veil
                                                                             
                                                                             
                                                                commissions - Open
