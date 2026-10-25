@@ -1,40 +1,40 @@
 # About-Me
   Sle3pY⟡⊹ ࣪ ˖✧˖° <img style="width:50px;height:50px;" src="https://file.garden/aCO7qI17ckpGZDoF/tumblr_07245afcfaee316521d8a036aa63fc89_19782837_250.webp
                         
-                                    ||He/Him/His||Ghost Fan||✮⋆˙
-<p class="mx-auto">    
-  <img src="https://file.garden/aCO7qI17ckpGZDoF/For%20AF/tumblr_00cfd79e8ffe3431e68368d450f76f15_f0cba367_250.webp"> 
-  <img src="https://file.garden/aCO7qI17ckpGZDoF/For%20AF/dir6lr1-458c08e8-3978-40f3-b6c0-7bec1bab0837.gif">
-   </p>
-   
-          -I'm really socially awkward (╥ᆺ╥；)-
-
-                  Fandoms:
-                  ✦Red Dead Redemption 2
-                  ✦Cult of the lamb
-                  ✦Genshin
-                  ✦Cookie run kingdom 
-                  ✦Lots of Danmei novels (QJJ MY BELOVED)
-                  ✦Link Click
-                  ✦Ghost bc
-                  ✦Sleep Token
-                  ✦DRAMAtical Murder
-
-                  
-                  Bands:
-                  ✦Ghost
-                  ✦Sleep Token
-                  ✦Motionless In White
-                  ✦Bad Omens 
-                  ✦Pierce The Veil
-
-
-                  commissions - Open
-               art trades Open - Moots
-                  requests - Closed
-                  
-                   ⋆｡°✩ “Now cracks a noble heart. Good-night, sweet prince;And flights of angels sing thee to thy rest. ” -William Shakespeare, Hamlet 
-                  
+                                                                                          ||He/Him/His||Ghost Fan||✮⋆˙
+                                                                            <p class="mx-auto">    
+                                                                              <img src="https://file.garden/aCO7qI17ckpGZDoF/For%20AF/tumblr_00cfd79e8ffe3431e68368d450f76f15_f0cba367_250.webp"> 
+                                                                              <img src="https://file.garden/aCO7qI17ckpGZDoF/For%20AF/dir6lr1-458c08e8-3978-40f3-b6c0-7bec1bab0837.gif">
+                                                                               </p>
+                                                                               
+                                                                                      -I'm really socially awkward (╥ᆺ╥；)-
+                                                                            
+                                                                                              Fandoms:
+                                                                                              ✦Red Dead Redemption 2
+                                                                                              ✦Cult of the lamb
+                                                                                              ✦Genshin
+                                                                                              ✦Cookie run kingdom 
+                                                                                              ✦Lots of Danmei novels (QJJ MY BELOVED)
+                                                                                              ✦Link Click
+                                                                                              ✦Ghost bc
+                                                                                              ✦Sleep Token
+                                                                                              ✦DRAMAtical Murder
+                                                                            
+                                                                                              
+                                                                                              Bands:
+                                                                                              ✦Ghost
+                                                                                              ✦Sleep Token
+                                                                                              ✦Motionless In White
+                                                                                              ✦Bad Omens 
+                                                                                              ✦Pierce The Veil
+                                                                            
+                                                                            
+                                                                                              commissions - Open
+                                                                                           art trades Open - Moots
+                                                                                              requests - Closed
+                                                                                              
+                                                                                               ⋆｡°✩ “Now cracks a noble heart. Good-night, sweet prince;And flights of angels sing thee to thy rest. ” -William Shakespeare, Hamlet 
+                                        
 
    <p class="mx-auto">
        <img src="https://file.garden/aCO7qI17ckpGZDoF/TH/tumblr_472b44b9ff0887cc0f7d4605341599f6_92f0c761_250.webp">
