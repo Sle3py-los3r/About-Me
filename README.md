@@ -1,5 +1,7 @@
 # About-Me
-  Sle3pY⟡⊹ ࣪ ˖✧˖° <img style="width:50px;height:50px;" src="https://file.garden/aCO7qI17ckpGZDoF/tumblr_07245afcfaee316521d8a036aa63fc89_19782837_250.webp
+  Sle3pY⟡⊹ ࣪ ˖✧˖° 
+  <p class="mx-auto">  
+  <img style="width:50px;height:50px;" src="https://file.garden/aCO7qI17ckpGZDoF/tumblr_07245afcfaee316521d8a036aa63fc89_19782837_250.webp
                         
                                                           ||He/Him/His||Ghost Fan||✮⋆˙
  <p class="mx-auto">    
